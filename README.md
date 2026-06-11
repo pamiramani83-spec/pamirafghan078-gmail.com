@@ -1,1 +1,1 @@
-# pamirafghan078-gmail.com
+pamirafghan078@gmail.com
